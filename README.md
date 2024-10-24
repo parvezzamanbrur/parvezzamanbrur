@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on research projects
 - 📫 How to reach me fb.com/faruk.reza1
 - 😄 Pronouns: NA
-- ⚡ Fun fact: I may seem dilusional but I'm confident
+- ⚡ Fun fact: I may seem delusional but I'm confident
 
 <!---
 parvezzamanbrur/parvezzamanbrur is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
